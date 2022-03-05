@@ -48,6 +48,6 @@
 
 最后提醒每位同胞，诚心敬念“法轮大法好！真善忍好！”，定能逢凶化吉，躲过瘟疫大难。
 
-原視頻 http://www.zhengjian.org/node/274001
+原文 http://www.zhengjian.org/node/274001
 
 ## [返回主頁](https://git.io/Js3EY)
